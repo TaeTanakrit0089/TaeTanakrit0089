@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![Jules And Vincent](https://thumbs.gfycat.com/SpotlessPoisedAss-size_restricted.gif)
+![Jules And Vincent](media/pulp.gif)
 
 <!--
 **TaeTanakrit0089/TaeTanakrit0089** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
