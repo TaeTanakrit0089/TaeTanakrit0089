@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![sfo01.webp](media/Laohu-GitHub.webp)
+![sfo01.webp](media/Laohu-GitHub-crop.webp)
 
 ![sfo01.webp](media/Github-Banner.webp)
 
