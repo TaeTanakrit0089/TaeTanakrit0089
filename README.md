@@ -2,6 +2,8 @@
 
 ![sfo01.webp](media/Laohu-GitHub.webp)
 
+![sfo01.webp](media/Github-Banner.webp)
+
 <!--
 **TaeTanakrit0089/TaeTanakrit0089** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
